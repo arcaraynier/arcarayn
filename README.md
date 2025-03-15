@@ -19,7 +19,7 @@
 This is ongoing section.
 Creating a project
 Motivated.
-Lets begin a new Journey
+Lets begin a new Journey love the 
 Be productive
 
 and carpe diem
