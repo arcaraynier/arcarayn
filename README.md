@@ -22,7 +22,7 @@ Motivated.
 Lets begin a new Journey love the 
 Be productive
 
-and carpe diem
+and carpe diem e
 <!-- Hey be consistent and be yourself.
 
 Finish..
