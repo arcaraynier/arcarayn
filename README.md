@@ -9,7 +9,7 @@
 - 💬 Ask me about ... python
 - 📫 How to reach me: ... hehe
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... I'm a skilled typist
+- ⚡ Fun fact: ... I'm a skilled typistt
 - 🔰
 
 - Reach me out at my LinkedIn.
